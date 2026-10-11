@@ -1,0 +1,2 @@
+# kally07-fx
+KALLY07 FX  SCANNER
